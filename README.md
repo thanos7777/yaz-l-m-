@@ -1,1 +1,1 @@
-# yaz-l-m-
+# yaz-l-m- yazılım 
